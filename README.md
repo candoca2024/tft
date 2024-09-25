@@ -1,0 +1,8 @@
+![Combo](https://github.com/user-attachments/assets/6085f7f3-ac44-4d97-a5c9-7aebab95fc20)
+![Notebook](https://github.com/user-attachments/assets/0d810da9-ab98-440d-89d0-a0d8c7aba4ea)
+![Plataformas](https://github.com/user-attachments/assets/864d4423-9728-47f7-b128-8f1ba4653c6f)
+![Telas](https://github.com/user-attachments/assets/d9957e00-5396-4a19-8077-3c2eb1688535)
+![celular](https://github.com/user-attachments/assets/09261f4f-5d51-4101-9dea-4fcf04fe9a71)
+![computador](https://github.com/user-attachments/assets/f3fd0134-a3f1-458c-96a4-3e2d38d34a1f)
+![tv](https://github.com/user-attachments/assets/af33128e-7dc4-4154-a84e-39c660efe218)
+![Background](https://github.com/user-attachments/assets/1b8d309a-e5ae-460a-8ca4-cde50d60b37e)
